@@ -1,6 +1,7 @@
 # rehab-blog
 ## 8/5/2025
-For the first time in 5 months,I started to study without any deadlines
+For the first time in 5 months,I started to study without any deadlines  
+
 Bought Krambit knife yesterday,plan to hold it till the Spring Festival
 My parent gave me a grand for investment,I felt the support that I've been long for
 We live in paradox.Anytime and anyone.
